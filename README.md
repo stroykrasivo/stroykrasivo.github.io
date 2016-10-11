@@ -1,0 +1,1 @@
+# stroykrasivo.github.io
