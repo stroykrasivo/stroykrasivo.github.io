@@ -1,1 +1,1 @@
-[Первые патриархи Русской Православной Церкви](https://stroykrasivo.github.io/patriarch.ppt)
+[ Р Е З Ю М Е](https://stroykrasivo.github.io/rez.doc)
